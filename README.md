@@ -1,6 +1,6 @@
 # grupo3
 ## integrantes:
-## Pablo Mas
-## Jazmin Salusso 20 villa españa
+## Pablo Mas. 27, Lanus Este.
+## Jazmin Salusso 20 Villa España
 ## Maximiliano Brocato
-## Carlos Braian Del Prado
+## Carlos Braian Del Prado 25 Recreo
